@@ -1,2 +1,2 @@
 # MODS-SCRIPT
-Ponierasz pliki na własną odpowiedzialność!
+Pobierasz pliki na własną odpowiedzialność!
